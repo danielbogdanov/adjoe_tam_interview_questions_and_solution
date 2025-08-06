@@ -8,6 +8,5 @@ Here are the solutions to the Take at home task:
 
 ## Good Luck!
 
-PS: They are probably ageist and don't like transparency. Also, be prepared to have 5 interviews after they actually decide you are not a good fit.
 
 ```
